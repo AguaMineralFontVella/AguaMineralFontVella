@@ -1,6 +1,7 @@
 ### ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ## Soy Sergio Pérez, aunque en github me conocen como [**Agua Mineral FontVella**](./images/LogoFV.jpg)
+###### (Hay archivos grandes cargando, es probable que tengas que esperar a que carguen un poco 😬 )
 
 ### ㅤㅤ
 
