@@ -22,7 +22,7 @@
 
 ### ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-<span style="font-family:Ninja Naruto; font-size:1em;">Quiero probar guasacaca venezolana 🥵</span>
+### 🍽 Quiero probar guasacaca venezolana 🥵
 
 ### ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
