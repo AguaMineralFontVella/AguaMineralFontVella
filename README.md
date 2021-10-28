@@ -14,7 +14,7 @@
 
 ### ㅤㅤㅤ
 
-### 🎮 Me gusta mucho videojuguear, llevo jugando desde que tenía 4 años pero no sé cómo he acabado jugando al [**League of Legends 😔🤙**](https://wol.gg/stats/euw/eldilz/)
+### 🎮 Me gusta mucho videojuguear, llevo jugando desde que tenía 4 años pero no sé como he acabado jugando al [**League of Legends 😔🤙**](https://wol.gg/stats/euw/eldilz/)
 
 ### ㅤㅤㅤㅤㅤㅤㅤ
 
