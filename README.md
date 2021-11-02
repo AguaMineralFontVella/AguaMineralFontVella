@@ -10,7 +10,7 @@
 
 ### ㅤㅤㅤ
 
-### 🥸 Actualmente estoy estudiando 1º de Desarrollo de Aplicaciones Multiplataforma (DAM) en [IES Luis Vives](https://iesluisvives.es/inicio.htm) 🏫
+### 🏫 Actualmente estoy estudiando 1º de Desarrollo de Aplicaciones Multiplataforma (DAM) en [IES Luis Vives](https://iesluisvives.es/inicio.htm) 🥸
 
 ### ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
