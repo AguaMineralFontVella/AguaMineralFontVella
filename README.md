@@ -10,15 +10,11 @@
 
 ### ㅤㅤㅤ
 
-### 🎮 Me gusta mucho videojuguear, llevo jugando desde que tenía 4 años pero no sé como he acabado jugando al [**League of Legends 😔🤙**](https://wol.gg/stats/euw/eldilz/)
+### 🎮 Me gusta mucho videojuguear, llevo jugando desde que tenía 4 años pero no sé como he acabado jugando al [**League of Legends 😔🤙**](https://wol.gg/stats/euw/eldilz/) (Aunque también juego a otras cosas como al Apex Legends, Genshin Impact, jueguitos de Nintendo, etc)
 
 ### ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-### 💻 Sé programar en HTML y Python, aunque ahora estoy aprendiendo Javascript, Typescript, Java y SQL 🤓
-
-### ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-
-### 🍽 Quiero probar la guasacaca venezolana 🥵
+### 💻 Sé programar en Markdown, HTML y Python, aunque ahora estoy aprendiendo JavaScript, TypeScript, Java y SQL 🤓
 
 ### ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
