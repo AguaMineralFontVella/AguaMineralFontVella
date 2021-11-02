@@ -10,6 +10,10 @@
 
 ### ㅤㅤㅤ
 
+### 🥸 Actualmente estoy estudiando 1º de Desarrollo de Aplicaciones Multiplataforma (DAM) en [IES Luis Vives](https://iesluisvives.es/inicio.htm) 🏫
+
+### ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
 ### 🎮 Me gusta mucho videojuguear, llevo jugando desde que tenía 4 años pero no sé como he acabado jugando al [**League of Legends 😔🤙**](https://wol.gg/stats/euw/eldilz/) (Aunque también juego a otras cosas como al Apex Legends, Genshin Impact, jueguitos de Nintendo, etc)
 
 ### ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
