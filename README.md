@@ -1,6 +1,6 @@
 ### 
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Ninja+Naruto&color=%2336BCF7&center=true&lines=Welcome)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Ninja+Naruto&color=%2336BCF7&center=true&lines=Welcome)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ## Soy Sergio Pérez, aunque en github aparezco como [**Agua Mineral FontVella**](./images/LogoFV.jpg)
 
