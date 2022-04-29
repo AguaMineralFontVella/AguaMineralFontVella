@@ -24,7 +24,7 @@
 
 ### ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-### 🎮 Me gusta mucho videojuguear, llevo jugando desde que tenía 4 años pero no sé como he acabado jugando al [**League of Legends 😔🤙**](https://wol.gg/stats/euw/eldilz/) (Aunque también juego a otras cosas como al Apex Legends, Genshin Impact, jueguitos de Nintendo, etc)
+### 🎮 Me gusta mucho videojuguear, llevo jugando desde que tenía 4 años pero no sé como he acabado jugando al [**League of Legends 😔🤙**](https://wol.gg/stats/euw/eldilz/) (Aunque también juego a otras cosas como al Apex Legends, Elden Ring, jueguitos de Nintendo, etc)
 
 ### ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
